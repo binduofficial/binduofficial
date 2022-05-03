@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lil Black Hood
-- - 👀 I’m interested in tik tok video creating and programming
+- 👀 I’m interested in tik tok video creating and programming
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
